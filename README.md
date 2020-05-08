@@ -26,7 +26,7 @@ Link: https://newbeerpongsakornz.github.io/
 
                                         
 ### Clip Video:
-Link: 
+Link: https://youtu.be/BnfifYbiKso
 
 ### Poster:
 Download here: https://drive.google.com/drive/folders/1lSz-wyJFvG-sE2aoE2m3e9WK-iAG-HoI?usp=sharing
